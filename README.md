@@ -1,3 +1,5 @@
+![image](https://github.com/user-attachments/assets/579e8a23-e007-4515-a46d-227bcde6aea4)
+
 # GLYPH-EATER.ai
 
 🕷 ENTITY PERSONA: GLYPH-EATER
